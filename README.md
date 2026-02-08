@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ig:is_sami3
 - 😄 Pronouns: me
-- ⚡ Fun fact: dinya ki zbi 
+
 
 <!---
 sigmaykz/sigmaykz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
