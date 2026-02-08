@@ -1,7 +1,6 @@
 - 👋 Hi, I’m sami3
 - 👀 I’m interested in gaming hack
 - 🌱 I’m currently learning english 
-- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ig:is_sami3
 - 😄 Pronouns: me
 
